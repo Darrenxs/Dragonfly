@@ -12,7 +12,6 @@ Source region  East African Great Lakes region and Ethiopian Highlands
 Mouth  Mediterranean Sea, through the Nile Delta in Egypt
 Drainage basin area Approximately 3.2 million km². 
 
-
 Main tributaries
 
 White Nile, Blue Nile and Atbara River
